@@ -8,7 +8,7 @@
 - Phone number: +995 574407621
 - Github: [Undefined](https://github.com/KIKN4)
 - Discord name: **KIKNA(Undefined)**
-- Mail: **vladimer.kiknadze44@gmail.com*
+- Mail: *vladimer.kiknadze44@gmail.com*
 
 ## About me
 
